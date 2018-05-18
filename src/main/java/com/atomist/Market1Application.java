@@ -1,5 +1,7 @@
 // No need to say 'I can do it.' You ARE doing it!
 
+// No need to say 'I can do it.' You ARE doing it!
+
 // It’s only a thought, and a thought can be changed.
 
 /*
